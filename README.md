@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on honestly nothing
-- 📫 How to reach me my doscord is itsmejennifer
+- 📫 How to reach me my discord is itsmejennifer
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i really love coding 
 
